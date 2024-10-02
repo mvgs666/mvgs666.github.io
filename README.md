@@ -1,1 +1,0 @@
-# pixelgs.github.io
